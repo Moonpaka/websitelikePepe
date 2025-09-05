@@ -27,4 +27,4 @@ Built with the latest technology, it ensures a smooth browsing experience across
 - Blockchain developers
 
 
-<h3 align="left">For More Visit:</h3> https://getallscripts.com/shop/pepe-coins-html5-template/ <br></br>
+<br></br>
